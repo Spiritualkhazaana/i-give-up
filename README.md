@@ -1,1 +1,3 @@
-# i-give-up
+# *I Give Up: A Transformative Journey from Control to Freedom*
+## *We live in a culture that worships “grit,” “hustle,” and “taking charge.” We are told from a young age that if we just work harder, plan better, and manifest our desires, we can control our destiny. But what happens when the plan falls apart? What happens when the diagnosis comes, the relationship ends, or the dream job vanishes? In “I Give Up: The Secret Joy of a Surrendered Life,” Grammy Award-winning singer and songwriter Laura Story offers a counterintuitive solution to the exhaustion of trying to manage the universe: Surrender.* [More details…](https://spiritualkhazaana.com/i-give-up-a-journey-from-control-to-freedom/)
+## #igiveup #surrender #letitnggo #presenceofgod #joyoflife #findingjoy
